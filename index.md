@@ -1,8 +1,8 @@
-## Welcome to CreedTwo. 
+## Welcome Hollywood producers.  Is Creed Two on the horizon? There is a way this domain can be yours. 
 
-If you love CreedTwo, holla. 
+Sly, shoot me a tweet @bf_dayton
 
 
-For more details contact Dayton Downtown Friends. 
+
 
 Dayton, OH 2018.
